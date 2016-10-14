@@ -4,8 +4,8 @@
 * [序-5W1H](序-5w1h.md)
     * [寫給家長的一封信](寫給家長的一封信.md)
 * [幽默風趣](幽默風趣.md)
-    * It's a book
-    * You're a Hero, Daley B!
+    * [It's a book](its-a-book.md)
+    * [You're a Hero, Daley B!](youre-a-hero-daley-b.md)
     * Aliens Love Underpants
 * 尋找自我、自我認同
     * An Amazing Snowman
