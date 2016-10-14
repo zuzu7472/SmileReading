@@ -1,6 +1,12 @@
-# Pip and Posy - The Bedtime Frog![](https://images-na.ssl-images-amazon.com/images/I/61wooIzt-WL._SY498_BO1,204,203,200_.jpg)
+# Pip and Posy - The Bedtime Frog
+---
+![](https://images-na.ssl-images-amazon.com/images/I/61wooIzt-WL._SY498_BO1,204,203,200_.jpg)
 
-+ 作者：Axel Scheffler+ 網站：+ 紙質：不會太光滑的紙+ 文字：單字不多、簡單易懂且字型適中+ 插圖：讓內容更有感覺+ 感同身受度：4
++ 作者：Axel Scheffler
++ 網站：
++ 紙質：不會太光滑的紙
++ 文字：單字不多、簡單易懂且字型適中
++ 插圖：讓內容更有感覺+ 感同身受度：4
 
 Posy到Pip家過夜，一整天兩個人都在一起做任何事情，直到晚上準備要睡覺的時候，Posy居然睡不著了，因為他發現他居然忘記帶他的青蛙娃娃來了。翻來覆去的都睡不著，Pip為了讓Posy好睡覺，把他所有可以用得上的玩具都給Posy了，到最後Pip做了一個非常困難的決定，他把自己心愛的小豬娃娃借給了Posy，因此Posy和Pip才可以入睡。
 

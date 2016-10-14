@@ -1,6 +1,12 @@
-# My Grandpa![](https://images-na.ssl-images-amazon.com/images/I/41Swi7QGVDL._SX496_BO1,204,203,200_.jpg)
+# My Grandpa
+---
+![](https://images-na.ssl-images-amazon.com/images/I/41Swi7QGVDL._SX496_BO1,204,203,200_.jpg)
 
-+ 作者：Marta Altes+ 網站：http://smilereading.pixnet.net/blog/post/280977976+ 紙質：霧面不反光+ 文字：每頁字數不多且字型閱讀舒服+ 插圖： 線條圖案簡單，溫暖感人+ 感動度：4
++ 作者：Marta Altes
++ 網站：http://smilereading.pixnet.net/blog/post/280977976
++ 紙質：霧面不反光+ 文字：每頁字數不多且字型閱讀舒服
++ 插圖： 線條圖案簡單，溫暖感人
++ 感動度：4
 
 這是講有關爺孫情感的故事，裡面雖然也是簡簡單單的幾句話，但卻可以深深的感受到濃濃的情感。孫子知道爺爺年紀漸漸大了，從以前到現在，爺爺和他的互動間感受到不同的差別，但是這個差別非常的微小，不過小孩子總是非常敏銳和敏感的。在爺爺需要他的時候，總是能像爺爺以前對他一樣，陪伴著他。
 

@@ -1,6 +1,12 @@
-# Pip and Posy - The Little Puddle![](https://images-na.ssl-images-amazon.com/images/I/61DbRnwpQSL._SY495_BO1,204,203,200_.jpg)
+# Pip and Posy - The Little Puddle
+---
+![](https://images-na.ssl-images-amazon.com/images/I/61DbRnwpQSL._SY495_BO1,204,203,200_.jpg)
 
-+ 作者：Axel Scheffler+ 網站：+ 紙質：硬頁+ 文字：單字不多、簡單易懂且字型適中+ 插圖：讓內容更有感覺+ 教導度：3
++ 作者：Axel Scheffler+ 網站：
++ 紙質：硬頁
++ 文字：單字不多、簡單易懂且字型適中
++ 插圖：讓內容更有感覺
++ 教導度：3
 
 Pip到Posy家玩，因為玩到忘記去上廁所，所以就尿在地板上了。不過Posy沒有因此責怪Pip，還對著Pip說沒有關係，每個人都會發生這種意外，還讓他換上自己的一件乾淨衣服。處理完地上的尿，兩個人就繼續玩遊戲了。這一次，Pip想要廁所的時候，就真的自己到馬桶去尿尿了。
 

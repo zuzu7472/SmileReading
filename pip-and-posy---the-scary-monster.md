@@ -1,8 +1,13 @@
 # Pip and Posy - The Scary Monster
-
+---
 ![](https://images-na.ssl-images-amazon.com/images/I/61gqfZjigVL._SX258_BO1,204,203,200_.jpg)
 
-+ 作者：Axel Scheffler+ 網站：+ 紙質：硬頁+ 文字：單字不多、簡單易懂且字型適中+ 插圖：讓內容更有感覺+ 調皮度：4
++ 作者：Axel Scheffler
++ 網站：
++ 紙質：硬頁
++ 文字：單字不多、簡單易懂且字型適中
++ 插圖：讓內容更有感覺
++ 調皮度：4
 
 調皮的Pip，可能在下雨天知道Posy在家會無聊，所以就穿上了怪獸裝，嚇嚇Posy。Posy當然被嚇的哭了出來，不過眼尖的Posy看到怪獸裝下有著Pip的腳。於是就跟Pip打招呼。Pip把身上怪獸裝脫下來，對著Posy說，如果有嚇到你的話，我跟你說對不起。（都已經把人家嚇哭了，才要跟人家說對不起，真是有夠皮的…）
 

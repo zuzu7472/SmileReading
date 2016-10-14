@@ -1,6 +1,12 @@
-# Pip and Posy - The Big Balloon![](https://images-na.ssl-images-amazon.com/images/I/61uWLLVDkFL._SX258_BO1,204,203,200_.jpg)
+# Pip and Posy - The Big Balloon
+---
+![](https://images-na.ssl-images-amazon.com/images/I/61uWLLVDkFL._SX258_BO1,204,203,200_.jpg)
 
-+ 作者：Axel Scheffler+ 網站：+ 紙質：不會太光滑的紙+ 文字：單字不多、簡單易懂且字型適中+ 插圖：圖案夠大夠明顯+ 感同身受度：4
++ 作者：Axel Scheffler+ 網站：
++ 紙質：不會太光滑的紙
++ 文字：單字不多、簡單易懂且字型適中
++ 插圖：圖案夠大夠明顯
++ 感同身受度：4
 
 Pip有了一個新的愛物，那就是紅色的大氣球。他很開心的分享給Posy，於是兩人就一起拉著氣球，到街上去走走。突然，Pip忘了將氣球抓好，氣球就飛走了。Pip和Posy沿路一直追著氣球，結果，氣球越飛越高，直到被樹枝刺破了。
 

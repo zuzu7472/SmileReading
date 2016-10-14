@@ -1,6 +1,12 @@
-# The Hundred Decker Bus![](https://images-na.ssl-images-amazon.com/images/I/61xJQP6MAeL._SX387_BO1,204,203,200_.jpg)
+# The Hundred Decker Bus
+---
+![](https://images-na.ssl-images-amazon.com/images/I/61xJQP6MAeL._SX387_BO1,204,203,200_.jpg)
 
-+ 作者：Mike Smith + 網站： http://smilereading.pixnet.net/blog/post/222311320+ 紙質： 一般，但可以延伸操作+ 文字：字數中等且字型閱讀舒服+ 插圖： 顏色鮮明、舒服+ 驚喜度：5
++ 作者：Mike Smith 
++ 網站： http://smilereading.pixnet.net/blog/post/222311320
++ 紙質： 一般，但可以延伸操作+ 文字：字數中等且字型閱讀舒服
++ 插圖： 顏色鮮明、舒服
++ 驚喜度：5
 
 這一本是我在網路上不小心逛到的一本書，覺得這本書也太酷了！一百層的巴士耶！且它還說內有翻頁是可以呈現出一百層公車的書，就讓我非常心動，馬上就入手啦！果然拿到了不負所望，果真是很有趣的一本書！
 

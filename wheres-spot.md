@@ -1,8 +1,13 @@
 # Where’s Spot?
-
+---
 ![](https://images-na.ssl-images-amazon.com/images/I/51otbmy5AGL._SY479_BO1,204,203,200_.jpg)
 
-+ 作者：Eric Hill+ 網站： http://smilereading.pixnet.net/blog/post/210959401+ 紙質： 普通亮面紙質+ 文字：字數中等且字型閱讀舒服+ 插圖： 可愛的畫風+ 溫馨度：4
++ 作者：Eric Hill
++ 網站： http://smilereading.pixnet.net/blog/post/210959401
++ 紙質： 普通亮面紙質
++ 文字：字數中等且字型閱讀舒服
++ 插圖： 可愛的畫風
++ 溫馨度：4
 
 可愛的狗狗，我們家的Linus非常的有反應。很喜歡狗狗的他，讓他有想要翻開書本的動力，而且這本還是翻翻書，不止讓他可以動手翻翻看，訓練他的手眼協調還可以讓他有種驚喜的感覺。
 

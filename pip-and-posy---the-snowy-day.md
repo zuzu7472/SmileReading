@@ -1,6 +1,12 @@
-# Pip and Posy - The Snowy Day![](https://images-na.ssl-images-amazon.com/images/I/61O-fm4nEkL._SX497_BO1,204,203,200_.jpg)
+# Pip and Posy - The Snowy Day
+---
+![](https://images-na.ssl-images-amazon.com/images/I/61O-fm4nEkL._SX497_BO1,204,203,200_.jpg)
 
-+ 作者：Axel Scheffler+ 網站：+ 紙質：不會太光滑的紙+ 文字：單字不多、簡單易懂且字型適中+ 插圖：賦予文字更多的情感面+ 感同身受度：4
++ 作者：Axel Scheffler+ 網站：
++ 紙質：不會太光滑的紙
++ 文字：單字不多、簡單易懂且字型適中
++ 插圖：賦予文字更多的情感面
++ 感同身受度：4
 
 下雪天，Pip和Posy想要到外面玩雪去，於是在家裡都穿上防寒衣物，還有防水的雨鞋，準備出去大玩特玩。堆完了一個雪人，兩人開始為下一個作品要做什麼而開始爭吵。Posy先是丟了Pip雪球，接著Pip就把Posy推倒在地上，然後兩個小朋友就開始大哭，因為太冷又太委屈了。
 

@@ -1,6 +1,12 @@
-# Maps![](https://images-na.ssl-images-amazon.com/images/I/61R8qAXeCAL._SX365_BO1,204,203,200_.jpg)
+# Maps
+---
+![](https://images-na.ssl-images-amazon.com/images/I/61R8qAXeCAL._SX365_BO1,204,203,200_.jpg)
 
-+ 作者：Aleksandra Mizielinska & Daniel Mizielinski+ 網站： http://smilereading.pixnet.net/blog/post/222508207+ 紙質：不反光、牛皮紙+ 文字：字數中等且字型閱讀舒服+ 插圖：圖案相當豐富，顏色也非常鮮豔+ 好玩度：5
++ 作者：Aleksandra Mizielinska & Daniel Mizielinski
++ 網站： http://smilereading.pixnet.net/blog/post/222508207
++ 紙質：不反光、牛皮紙+ 文字：字數中等且字型閱讀舒服
++ 插圖：圖案相當豐富，顏色也非常鮮豔
++ 好玩度：5
 
 這本根本就是重量級的啊！可愛的畫風、手繪風格、不傷眼的牛皮紙的顏色又是精裝書，哇賽！這喜歡手繪風格的人哪受得了！一定要入手的啊！不愧價錢貴桑桑的，還好台灣有進口書的書商佛心來著，有打折，不然原價入手怎受的了？！
 

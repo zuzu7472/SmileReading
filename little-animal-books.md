@@ -1,6 +1,13 @@
-# Little Animal Books![](https://images-na.ssl-images-amazon.com/images/I/41ZzGKkoKOL._SX184_BO1,204,203,200_.jpg)
+# Little Animal Books
+---
+![](https://images-na.ssl-images-amazon.com/images/I/41ZzGKkoKOL._SX184_BO1,204,203,200_.jpg)
 
-+ 作者：Pluta Lillian/ Phillips Jillian (ILT)+ 網站： + 紙質： 厚紙板，再生紙質+ 文字： 字數很少+ 插圖： 顏色鮮明+ 入門容易度：5
++ 作者：Pluta Lillian/ Phillips Jillian (ILT)
++ 網站： 
++ 紙質： 厚紙板，再生紙質
++ 文字： 字數很少
++ 插圖： 顏色鮮明
++ 入門容易度：5
 
 這算是許多小硬頁書集合而成的長盒書集。全部都是以再生紙製作而成的書。
 

@@ -1,6 +1,12 @@
-# Big Book of English Words![](https://images-na.ssl-images-amazon.com/images/I/51qMNzENs2L._SX407_BO1,204,203,200_.jpg)
+# Big Book of English Words
+---
+![](https://images-na.ssl-images-amazon.com/images/I/51qMNzENs2L._SX407_BO1,204,203,200_.jpg)
 
-+ 作者：Various / Mairi MacKinnon+ 網站： + 紙質： 厚紙板，不易損壞+ 文字： 只有單字+ 插圖： 圖案簡單易懂+ 入門容易度：5
++ 作者：Various / Mairi MacKinnon+ 網站： 
++ 紙質： 厚紙板，不易損壞
++ 文字： 只有單字
++ 插圖： 圖案簡單易懂
++ 入門容易度：5
 
 這本書有點像字典，但又不太像。不過，內含有許多生活場景會用到的字彙，對於小朋友來說，算是很容易就可以應用的。裡面都會有不同的圖案或是場所來介紹一些常用的單字。
 

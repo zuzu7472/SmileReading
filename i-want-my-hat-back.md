@@ -1,6 +1,13 @@
-# I Want My Hat Back![](https://images-na.ssl-images-amazon.com/images/I/415sPaS0FoL._SX358_BO1,204,203,200_.jpg)
+# I Want My Hat Back
+---
+![](https://images-na.ssl-images-amazon.com/images/I/415sPaS0FoL._SX358_BO1,204,203,200_.jpg)
 
-+ 作者：Jon Klassen+ 網站： http://smilereading.pixnet.net/blog/post/242142937+ 紙質：一般紙質，好摸好翻+ 文字：字數中等且字型閱讀舒服+ 插圖：圖案清晰但色調稍嫌灰暗+ 耐人省思度：5
++ 作者：Jon Klassen
++ 網站： http://smilereading.pixnet.net/blog/post/242142937
++ 紙質：一般紙質，好摸好翻
++ 文字：字數中等且字型閱讀舒服
++ 插圖：圖案清晰但色調稍嫌灰暗
++ 耐人省思度：5
 
 一隻目光呆滯的熊，在封面非常的引人注目。想說，一隻熊那麼大隻，真的要不回他的帽子嗎？還是他真的是太愚笨了，所以才拿不回他的帽子。基於好奇心，又將這本書拿起來翻了！
 
